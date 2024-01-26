@@ -5,3 +5,4 @@
 # <a href="https://www.youtube.com">會長勝率七成直播
 # 宏碁戲谷:新黑澀會會長, 傑邦上兵( 10582962 )
 # <a href="mailto:jetbomb2012@gmail.com">我想訓練成高手打敗他們,成為高手中的高手</a>
+# 宏碁戲谷<a href="https://www.mj-king.top/">這個連結</a>新黑澀會麻將公會<br>
