@@ -11,4 +11,4 @@
 # 麻將師二<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">( lingoce )
 
 # 傑邦事業集團 (麻將認證證明書授與)
-# 傑邦事業集團有限公司讚助 ( all right reser )
+# 傑邦事業集團有限公司讚助 ( © 2024 Jetbomb. All rights reserved. )
