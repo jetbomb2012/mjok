@@ -9,7 +9,10 @@
 # 2.麻將大師請進<a href="mailto:bensonjack@yahoo.com">麻將講師</a>
 # <a href="https://www.mj-king.top/">新黑澀會麻將公會網址</a><br>
 # 麻將師一<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">傑邦上兵
+# 職業九段
 # 麻將師二<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">( lingoce )
+# 麻將師三 紅蜻蜓小王子
+
 
 # 傑邦事業集團 (麻將認證證明書授與)
 # 傑邦事業集團有限公司讚助 ( © 2024 Jetbomb. All rights reserved. )
