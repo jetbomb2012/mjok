@@ -1,6 +1,6 @@
 
 # 麻將新手訓練中心
-# 目標是麻將公會戰勝率百分之50!
+# 目標:勝率百分之50!
 
 # <a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">會長勝率七成直播
 # 宏碁戲谷:新黑澀會會長, 傑邦上兵( 10582962 )
