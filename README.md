@@ -10,5 +10,5 @@
 # 麻將師一<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">傑邦上兵
 # 麻將師二<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">( lingoce )
 
-
+# 傑邦事業集團 (麻將認證證明書授與)
 # 傑邦事業集團有限公司讚助 ( all right reser )
