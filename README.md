@@ -11,4 +11,4 @@
 # 麻將講座二<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">( lingoce )
 
 
-# 傑邦事業集團有限公司讚助
+# 傑邦事業集團有限公司讚助 ( all right reser )
