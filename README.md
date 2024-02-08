@@ -10,12 +10,12 @@
 # 二<a href="mailto:bensonjack@yahoo.com">招攬各公會麻將師講座</a>
 # 宏碁戲谷各大公會麻將師講座
 # <a href="https://www.mj-king.top/">新黑澀會麻將公會網址</a><br>
-# 麻將師一<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">傑邦上兵( 2XCH$ )
+# 新黑澀會麻將師一<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">傑邦上兵( 2XCH$ )
 
-# 麻將師二<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">( lingoce )( 4XCH$ )
-# 麻將師二<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">( 獅爺LEO )( 4XCH$ )
+# 新黑澀會麻將師二<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">( lingoce )( 4XCH$ )
+# 新黑澀會麻將師二<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">( 獅爺LEO )( 4XCH$ )
 
-# 麻將師二<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">( 夜千雪 )( 4XCH$ )
+# 新黑澀會麻將師二<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">( 夜千雪 )( 4XCH$ )
 
 
 # 傑邦事業集團 (麻將大師級認證 與 證明書授與)
