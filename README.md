@@ -10,9 +10,9 @@
 # 2.麻將大師請進(bensonjack@yahoo.com)
 # 各戲谷各大公會麻將師講座
 # <a href="https://www.mj-king.top/">新黑澀會麻將公會網址</a><br>
-# 麻將師一<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">傑邦上兵
+# 麻將師一<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">傑邦上兵( 2XCH$ )
 
-# 麻將師二<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">( lingoce )
+# 麻將師二<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">( lingoce )( 4XCH$ )
 # 麻將師三 獅爺LEO
 
 
