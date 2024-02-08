@@ -8,7 +8,7 @@
 # <a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">會長勝率七成直播(24小時直播)
 # 1.報名(jetbomb2012@gmail.com)
 # 2.麻將大師請進(bensonjack@yahoo.com)
-# 各大公會網址及麻將師講座
+# 各戲谷各大公會麻將師講座
 # <a href="https://www.mj-king.top/">新黑澀會麻將公會網址</a><br>
 # 麻將師一<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">傑邦上兵
 
