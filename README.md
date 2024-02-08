@@ -7,7 +7,7 @@
 # 訓練中心主任:宏碁戲谷.新黑澀會會長.傑邦上兵( 10582962 )
 # <a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">會長勝率七成直播(24小時直播)
 # <a href="mailto:jetbomb2012@gmail.com">報名信箱</a>
-# <a href="mailto:bensonjack@yahoo.com">成立麻將師講座</a>
+# <a href="mailto:bensonjack@yahoo.com">招攬各公會麻將師講座</a>
 # 各戲谷各大公會麻將師講座
 # <a href="https://www.mj-king.top/">新黑澀會麻將公會網址</a><br>
 # 麻將師一<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">傑邦上兵( 2XCH$ )
