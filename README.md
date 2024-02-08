@@ -13,7 +13,9 @@
 # 麻將師一<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">傑邦上兵( 2XCH$ )
 
 # 麻將師二<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">( lingoce )( 4XCH$ )
-# 麻將師三 獅爺LEO
+# 麻將師二<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">( 獅爺LEO )( 4XCH$ )
+
+# 麻將師二<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">( 夜千雪 )( 4XCH$ )
 
 
 # 傑邦事業集團 (麻將大師級認證 與 證明書授與)
