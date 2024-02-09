@@ -18,5 +18,5 @@
 # 新黑澀會麻將師二<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">( 夜千雪 )( 4XCH$ )
 
 
-# 傑邦事業集團 (麻將大師級認證 與 證明書授與)
+# 傑邦事業集團 (麻將大師認證 與 證明書授與)
 # 傑邦事業集團有限公司 ( © 2024 Jetbomb. All rights reserved. )
