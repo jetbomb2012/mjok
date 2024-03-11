@@ -15,7 +15,7 @@
 # 新黑澀會麻將師二<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">( lingoce )( 4XCH$ )
 # 新黑澀會麻將師二<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">( 獅爺LEO )( 4XCH$ )
 
-# 新黑澀會麻將師二<a href="https://www.youtube.com/channel/UC-PHMjrhrDjeInhwoXv4pxA/live">( 夜千雪 )( 4XCH$ )
+
 
 
 # 傑邦事業集團 (麻將大師認證 與 證明書授與)
